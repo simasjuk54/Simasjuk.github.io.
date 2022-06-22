@@ -1,1 +1,0 @@
-# Simasjuk.github.io.
